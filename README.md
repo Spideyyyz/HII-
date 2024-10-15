@@ -3,7 +3,16 @@
 
 
 
-HIII!! IF UR READING THIS ^_^ 
+HIII!! IF UR READING THIS!! THIS IS MORE INFO. STILL IN WIP ^_^
+
+
+![image](https://github.com/user-attachments/assets/4855a8b5-24db-4d26-a7bb-885635fdbbc9)
+☆ INTERACTIONS 
+
+
+
+
+
 
 
 
