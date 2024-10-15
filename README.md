@@ -1,6 +1,5 @@
-HIII!! IF UR READING THIS!! THIS IS MORE INFO. STILL IN WIP ^_^
 ![image](https://github.com/user-attachments/assets/aef8fd00-0b43-45ed-b0b2-36e3093eed70)
-
+HIII!! IF UR READING THIS!! THIS IS MORE INFO. STILL IN WIP ^_^
 
 
 
